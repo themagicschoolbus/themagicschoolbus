@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @themagicschoolbus, your chauffeur to wacky wonders and educational escapades!
+- 👀 I’m interested in exploring the depths of the universe inside a proton-sized submarine... or a Magic School Bus, whichever is available.
+- 🌱 I’m currently learning how to turn broccoli into rocket fuel... for science, of course!
+- 💞️ I’m looking to collaborate on intergalactic field trips and shrinking adventures!
+- 📫 How to reach me? Just give the bus horn a toot, and I'll come zooming your way!
+- 😄 Pronouns: Professor Frizzle-style: She/Her/We're on a journey!
+- ⚡ Fun fact: Did you know the Magic School Bus has more horsepower than a herd of galloping unicorns? 🦄🚌
